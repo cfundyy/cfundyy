@@ -1,4 +1,12 @@
-## Hi there 👋
+## HEYYYY!!!!!!!!!!!!!!!!!
+*this is my github hey hi hi*
+
+im making an about me to advertise my awesome cool mcyt text roleplayer server on discord dot com.
+its semi lit, 15+ and a multiverse sort of au. its super cool and you can check it out here
+-- >  ([disboard](https://disboard.org/server/1512967185927245955)) or a direct discord invite at (one second)
+
+
+
 
 <!--
 **cfundyy/cfundyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
