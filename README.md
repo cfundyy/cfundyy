@@ -3,7 +3,7 @@
 
 im making an about me to advertise my awesome cool mcyt text roleplayer server on discord dot com.
 its semi lit, 15+ and a multiverse sort of au. its super cool and you can check it out here
--- >  ([disboard](https://disboard.org/server/1512967185927245955)) or a direct discord invite at (one second)
+-- >  [disboard](https://disboard.org/server/1512967185927245955) or a direct [discord](https://discord.gg/5VG3GNKZA4) invite.
 
 
 
